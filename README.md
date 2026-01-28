@@ -1,3 +1,3 @@
 ## Hi there 👋
-I’m currently working on my Bachelors Degree as an Economic Engineer
+I’m currently working on my Bachelors Degree as an Electrical Engineer
 
